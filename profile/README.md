@@ -24,4 +24,4 @@ We focus on understanding operational needs and translating them into useful, ma
 
 ---
 
-*INNOVΛ is a brand of INNOVA GESTION Y SOLUCIONES DIGITALES E.I.R.L.*
+*Operated by INNOVA GESTION Y SOLUCIONES DIGITALES E.I.R.L. · Lima, Peru.*
